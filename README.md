@@ -14,5 +14,5 @@
 
 
 
-# I suck at coding, most of the stuff I make is really basic but I still leave free. :-) So have fun! 
+# I suck at coding, most of the stuff I make is really basic but I still leave free. :-) *So have fun!* 
 I like to keep stuff open-source. Feel free to download, contribute, or skid anything on my profile!
